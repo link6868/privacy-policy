@@ -7,4 +7,4 @@ No data is transmitted to external servers or third parties.
 
 ## Contact
 If you have questions about this privacy policy, you can contact:
-email@example.com
+dutch.gamer.68.68@gmail.com
